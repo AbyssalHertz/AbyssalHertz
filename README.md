@@ -1,1 +1,76 @@
+<p align="center">
+<img width="2048" height="263" alt="tumblr_48b52d96ca225429ade293626506e428_1bcc127e_2048" src="https://github.com/user-attachments/assets/ffff5433-b906-47b4-a5b7-aa0d3c4eb2c8" />
+</p>
 
+</br>
+<h1 align="center">
+" 𝙽𝟶𝙻𝟺𝚈 𝚆𝟺𝚂 𝙷𝟹𝚁𝟹 "
+</h1>
+  
+---
+  
+<p align="center">
+<img width="1738" height="582" alt="Screenshot 2025-12-10 at 19-46-41 Untitled_design1 png (WEBP Image 1272 × 653 pixels) — Scaled (91%)" src="https://github.com/user-attachments/assets/b710791f-d614-4aa9-8c75-9b83b780fc74" />
+</p>
+
+<p align="center">
+<img width="1280" height="102" alt="tumblr_67dcf335abf15c74c1f07464193c0070_2892468f_1280" src="https://github.com/user-attachments/assets/9a8fa29b-f04a-4d98-aa55-e73c1d44c342" />
+</p>
+</br>
+
+</p>
+
+𝙲𝚊𝚕𝚕 𝚖𝚎 𝚂𝚌𝚛𝚎𝚎𝚗 / 𝙽𝚘𝚕𝚊𝚢 / 𝙷𝚊𝚕 !!
+
+𝙸'𝚖 𝟸𝟶 𝚢𝚎𝚊𝚛𝚜 𝚘𝚕𝚍, 𝚔𝚎𝚎𝚙 𝚝𝚑𝚊𝚝 𝚒𝚗 𝚖𝚒𝚗𝚍 𝚘𝚔? + Transmasc - Interbinary - Pansexual
+
+𝙷𝚞𝚐𝚎 𝙽𝚘𝚕𝚒𝚜 (𝚈𝚎𝚜, 𝚙𝚕𝚞𝚛𝚊𝚕) 𝚏𝚒𝚌𝚝𝚔𝚒𝚗 𝚊𝚗𝚍 𝚊𝚕𝚜𝚘 𝙴𝚡𝚙𝚊𝚗𝚍𝚊𝚋𝚕𝚎 - 𝙵𝚎𝚎𝚕 𝚏𝚛𝚎𝚎 𝚝𝚘 𝚒𝚗𝚝!!
+
+𝙲+𝙷 𝚒𝚜 𝚎𝚗𝚌𝚘𝚞𝚛𝚊𝚐𝚎𝚍!! 𝙿𝚕𝚎𝚊𝚜𝚎 𝚆𝟸𝙸 𝚜𝚒𝚗𝚌𝚎 𝙸'𝚖 𝚘𝚏𝚏𝚝𝚊𝚋 𝚖𝚘𝚜𝚝 𝚘𝚏 𝚝𝚑𝚎 𝚝𝚒𝚖𝚎
+
+𝙱𝚎𝚜𝚒𝚍𝚎 𝚝𝚑𝚎 𝚘𝚋𝚟𝚒𝚘𝚞𝚜 𝚏𝚊𝚗𝚍𝚘𝚖 𝙸'𝚖 𝚒𝚗, 𝙸 𝙻𝙾𝚅𝙴 𝚂𝚞𝚋𝚗𝚊𝚞𝚝𝚒𝚌𝚊 𝚊𝚗𝚍 𝙱𝚎𝚑𝚘𝚕𝚍𝚎𝚛 𝚐𝚊𝚖𝚎 𝚜𝚎𝚛𝚒𝚎𝚜 - 𝙿𝙻𝚂𝙿𝙻𝚂𝙿𝙻𝚂 𝙸𝙽𝚃 𝙸𝙵 𝚈𝙾𝚄 𝙰𝙻𝚂𝙾 𝙻𝙾𝚅𝙴 𝚃𝙷𝙴𝚂𝙴
+
+𝙸 𝚊𝚕𝚜𝚘 𝚕𝚘𝚟𝚎 𝙷𝚘𝚕𝚕𝚘𝚠 𝙺𝚗𝚒𝚐𝚑𝚝 + 𝚂𝚒𝚕𝚔𝚜𝚘𝚗𝚐 𝚞𝚑𝚖,, 𝚂𝙷𝙰𝚆
+
+
+</br>
+
+
+<h2 align="center">
+" 𝙳𝙾 𝙽𝙾𝚃 𝙸𝙽𝚃𝙴𝚁𝙰𝙲𝚃 𝙸𝙵 : "
+</h2>
+
+𝙱𝚊𝚜𝚒𝚌 𝙳𝙽𝙸
+ 
+𝚄𝚗𝚍𝚎𝚛 𝟷𝟹 - 𝙱𝚎𝚕𝚘𝚠 𝟷𝟻 𝙸𝚆𝙲 𝚞𝚗𝚕𝚎𝚜𝚜 𝙸 𝚊𝚕𝚛𝚎𝚊𝚍𝚢 𝚔𝚗𝚘𝚠 𝚢𝚘𝚞 𝚘𝚔?
+
+𝙿𝚛𝟶𝚜𝚑𝚒𝚙 / 𝙷𝚘𝚖𝚘𝚙𝚑𝚒𝚌 / 𝙴𝚝𝚌.
+
+𝚁𝚊𝚌𝚒𝚜𝚝
+
+
+</br>
+
+
+<h2 align="center">
+" 𝙱𝚈𝟹 𝙱𝚈𝟹-!! "
+</h2>
+
+𝙸'𝚖 𝚞𝚜𝚞𝚊𝚕𝚕𝚢 𝚘𝚗 𝚂𝚂𝟸 𝚒𝚗 𝚝𝚑𝚎 𝚍𝚊𝚢 𝚊𝚗𝚍 𝚂𝚂𝟷 𝚊𝚝 𝚗𝚒𝚐𝚑𝚝 - 𝙰𝚕𝚘𝚗𝚎 𝚘𝚛 𝚠𝚒𝚝𝚑 𝚏𝚛𝚒𝚎𝚗𝚍𝚜
+
+𝙶𝙼𝚃 +𝟽 𝚃𝚒𝚖𝚎𝚣𝚘𝚗𝚎 - 𝙸 𝚞𝚜𝚞𝚊𝚕𝚕𝚢 𝚜𝚕𝚎𝚙𝚝 𝚊𝚝 𝟸 𝙰𝙼
+
+𝙸 𝚑𝚊𝚟𝚎 𝚜𝚘𝚌𝚒𝚊𝚕 𝚊𝚗𝚡𝚒𝚎𝚝𝚢 𝚊𝚗𝚍 𝚌𝚘𝚟𝚎𝚛 𝚍𝚒𝚜𝚌𝚘𝚖𝚏𝚘𝚛𝚝 - 𝚃𝚛𝚢 𝚝𝚘 𝚗𝚘𝚝 𝚌𝚘𝚟𝚎𝚛 𝚖𝚎 𝚞𝚗𝚕𝚎𝚜𝚜 𝚘𝚘𝚖𝚏𝚜 𝚘𝚛 𝙸 𝚊𝚜𝚔 𝚢𝚘𝚞 𝚝𝚘!
+
+𝙸 𝚕𝚘𝚟𝚎𝚎𝚎𝚎 𝙽𝚘𝚕𝚒𝚜, 𝚁𝚘𝚋𝚎𝚛𝚝_𝚅𝚘𝚒𝚍, 𝙹𝚘𝚑𝚗 𝙳𝚘𝚎𝚜, 𝙴𝚡𝚙𝚊𝚗𝚍𝚊𝚋𝚕𝚎, 𝚂𝚎𝚊𝚛𝚌𝚑𝚕𝚒𝚐𝚑𝚝, 𝙰𝙻-𝙰𝙽 𝚊𝚗𝚍 𝚕𝚘𝚝𝚜 𝚖𝚘𝚛𝚎 - !! 𝙸𝚝 𝚠𝚘𝚞𝚕𝚍 𝚋𝚎 𝚝𝚘𝚘 𝚖𝚞𝚌𝚑 𝚒𝚏 𝙸 𝚠𝚛𝚒𝚝𝚎 𝚎𝚟𝚎𝚛𝚢𝚘𝚗𝚎 𝚑𝚎𝚛𝚎
+
+I love my oomfs/p because they make me happy and I want to make them happy - Y'all are so awesomesauce idk what I did to deserve y'all sobs
+
+𝙼𝚢 𝙳𝚒𝚜𝚌𝚘𝚛𝚍 𝚒𝚜 𝚊𝚋𝚢𝚜𝚜𝚊𝚕𝚑𝚎𝚛𝚝𝚣 !! 𝙼𝚢 𝚁𝚘𝚋𝚕𝚘𝚡 𝚞𝚜𝚎𝚛 𝚒𝚜 𝚂𝚌𝚛𝚎𝚎𝚗𝙰𝚟𝚒 - 𝙰𝚜𝚔 𝚋𝚎𝚏𝚘𝚛𝚎 𝚊𝚍𝚍𝚒𝚗𝚐 !!
+
+
+<p align="center">
+<img width="2047" height="192" alt="tumblr_22dde89a19b1469015361743d415d8c9_832638be_2048" src="https://github.com/user-attachments/assets/fdc370a7-91a0-479d-b7a9-67828de5fd2f" />
+</p>
+
+> 𝙼𝚘𝚜𝚝 𝚍𝚒𝚟𝚒𝚍𝚎𝚛 𝚒𝚜 𝚋𝚢 𝚍𝚘𝚕𝚕𝚢𝚠𝚘𝚗𝚜 𝚘𝚗 𝚃𝚞𝚖𝚋𝚕𝚛 !!
