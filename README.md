@@ -1,5 +1,5 @@
 <p align="center">
-<img width="2048" height="263" alt="tumblr_48b52d96ca225429ade293626506e428_1bcc127e_2048" src="https://github.com/user-attachments/assets/ffff5433-b906-47b4-a5b7-aa0d3c4eb2c8" />
+<img width="2048" height="263" alt="tumblr_48b52d96ca225429ade293626506e428_1bcc127e_2048" src="https://github.com/user-attachments/assets/ff80e079-c3da-4fcf-be05-13bb42405844" />
 </p>
 
 </br>
@@ -10,11 +10,11 @@
 ---
   
 <p align="center">
-<img width="1738" height="582" alt="Screenshot 2025-12-10 at 19-46-41 Untitled_design1 png (WEBP Image 1272 × 653 pixels) — Scaled (91%)" src="https://github.com/user-attachments/assets/b710791f-d614-4aa9-8c75-9b83b780fc74" />
+<img width="1738" height="582" alt="Screenshot 2025-12-10 at 19-46-41 Untitled_design1 png (WEBP Image 1272 × 653 pixels) — Scaled (91%)" src="https://github.com/user-attachments/assets/41491108-8877-402c-a257-4099a0f22919" />
 </p>
 
 <p align="center">
-<img width="1280" height="102" alt="tumblr_67dcf335abf15c74c1f07464193c0070_2892468f_1280" src="https://github.com/user-attachments/assets/9a8fa29b-f04a-4d98-aa55-e73c1d44c342" />
+<img width="1280" height="102" alt="tumblr_67dcf335abf15c74c1f07464193c0070_2892468f_1280" src="https://github.com/user-attachments/assets/3cc91691-eddc-4fa9-b5e7-5072efa3885d" />
 </p>
 </br>
 
@@ -70,7 +70,7 @@ I love my oomfs/p because they make me happy and I want to make them happy - Y'a
 
 
 <p align="center">
-<img width="2047" height="192" alt="tumblr_22dde89a19b1469015361743d415d8c9_832638be_2048" src="https://github.com/user-attachments/assets/fdc370a7-91a0-479d-b7a9-67828de5fd2f" />
+<img width="2047" height="192" alt="tumblr_22dde89a19b1469015361743d415d8c9_832638be_2048" src="https://github.com/user-attachments/assets/f3b4c04c-4f9e-4df4-a24b-4e25a09e66ad" />
 </p>
 
 > 𝙼𝚘𝚜𝚝 𝚍𝚒𝚟𝚒𝚍𝚎𝚛 𝚒𝚜 𝚋𝚢 𝚍𝚘𝚕𝚕𝚢𝚠𝚘𝚗𝚜 𝚘𝚗 𝚃𝚞𝚖𝚋𝚕𝚛 !!
