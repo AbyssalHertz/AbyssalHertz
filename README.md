@@ -73,4 +73,8 @@
 <img width="2047" height="192" alt="tumblr_22dde89a19b1469015361743d415d8c9_832638be_2048" src="https://github.com/user-attachments/assets/f3b4c04c-4f9e-4df4-a24b-4e25a09e66ad" />
 </p>
 
+<p align="center">
+<img width="2048" height="263" alt="tumblr_48b52d96ca225429ade293626506e428_1bcc127e_2048" src="https://github.com/user-attachments/assets/63a0a7b7-cd45-4642-b55a-454b49c06b21" />
+</p>
+
 > 𝙼𝚘𝚜𝚝 𝚍𝚒𝚟𝚒𝚍𝚎𝚛 𝚒𝚜 𝚋𝚢 𝚍𝚘𝚕𝚕𝚢𝚠𝚘𝚗𝚜 𝚘𝚗 𝚃𝚞𝚖𝚋𝚕𝚛 !!
