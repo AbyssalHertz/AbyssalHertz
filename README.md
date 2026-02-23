@@ -53,6 +53,8 @@
 <p align="center">
 <img width="735" height="583" alt="2b2242d0ab3f8f40d9ad76acc5a1673a" src="https://github.com/user-attachments/assets/231ef8f5-e6bd-489b-b091-e64e04affea3" />
 <p align="center"><code style="color : red">IC:: @obidude on Pinterest</code></p>
+<img width="2000" height="200" alt="tumblr_845e9dfaaadc03ffbe19a913103d409c_a1d12c96_2048" src="https://github.com/user-attachments/assets/d1696fec-780c-4707-b64d-ac1fced20139" />
+<p align="center">
 
 <h2 align="center">
 <code style="color : red">" 𝙰𝙱𝙾𝚄𝚃 𝙼𝙴 "</code>
