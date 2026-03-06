@@ -127,6 +127,8 @@
   - 𝙽𝚎𝚖𝚎𝚜𝚒𝚜 𝙿𝚛𝚒𝚖𝚎 , 𝚂𝚑𝚘𝚌𝚔𝚠𝚊𝚟𝚎 , 𝚂𝚘𝚞𝚗𝚍𝚠𝚊𝚟𝚎 [ 𝚃𝚛𝚊𝚗𝚜𝚏𝚘𝚛𝚖𝚎𝚛𝚜 / 𝚄𝚗𝚜𝚙𝚎𝚌𝚒𝚏𝚒𝚎𝚍 ]
   - 𝙳𝙹 [ 𝙲𝚊𝚛𝚜 / 𝚈𝚎𝚜, 𝙲𝚊𝚛𝚜 𝚏𝚛𝚘𝚖 𝙳𝚒𝚜𝚗𝚎𝚢 ]
   - 𝙺𝚒𝚕𝚕𝚍𝚛𝚘𝚒𝚍 [ 𝙳𝚒𝚎 𝚘𝚏 𝙳𝚎𝚊𝚝𝚑 / 𝚁𝚘𝚋𝚕𝚘𝚡 ]
+  - John Grace , Kookoo , Litany [ GRACE / Roblox ]
+  - Funeral of the Dead Butterflies [ Lobotomy Corperation / Project Moon ]
   - 𝙰𝚗𝚍 𝚖𝚊𝚢𝚋𝚎 𝚖𝚘𝚛𝚎 𝙸 𝚓𝚞𝚜𝚝 𝚌𝚊𝚗'𝚝 𝚝𝚑𝚒𝚗𝚔 𝚘𝚏 𝚊𝚗𝚢 𝚖𝚘𝚛𝚎
 </details>
 
