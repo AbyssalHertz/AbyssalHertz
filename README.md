@@ -1,6 +1,6 @@
 Hi im Hal yes Im not finished w these .
 
-Hi if you condone or play pressure even after the whole situation , either just DNI or block me dude . Idc how nice you actually are or any of your excuses ok . Before you came knocking and says "but you're a pressure fans" well , BEFORE the entire file was dropped and how Zeal basically committing a crime . I quit the game after the file dropped .
+Hi if you condone or play pressure even after the whole situation , either just DNI or block me dude . Idc how nice you actually are or any of your excuses ok . Before you came knocking and says "but you're a pressure fans" well , BEFORE the entire file was dropped and how Zeal basically committed a crime . I quit the game after the file dropped .
 
 If you have a problem with me , don't reach out to any of my friends . Say it on my face unless I block chat you . 
 
