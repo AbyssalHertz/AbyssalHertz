@@ -16,8 +16,27 @@ ${\color{lightgray}〷 " \space WELCOME \space BACK \space , \space DON'T \space
 
 </p>
 <h2 align="center">
-<code style="color : red">" 𝙱𝚈𝙸 / 𝙳𝙽𝙸 "</code>
+${\color{lightgray}〷 " \space DO \space READ \space BEFORE \space BEFORE \space YOU \space INTERACT \space : \space " 〷}$
 </h2>
 
-**〷 DO NOT INTERACT 〷**
+</p>
+<h3 align="center">
+${\color{darkgray}〷 " \space DO \space NOT \space INTERACT \space : \space " 〷}$
+</h3>
+
+${\color{darkgray}⤇ \space Basic \space DNI \space 〷}$
+
+${\color{darkgray}⤇ \space Below \space 15 \space >> \space you \space can \space still \space interact \space , \space I \space just \ won't \space form \space a \space close \space bond \space with \space you \space << \space 〷}$
+
+${\color{darkgray}⤇ \space Pr0shipper \space , \space D4rkshipper \space , \space 1ncest \space , \space etc. \space 〷}$
+
+${\color{darkgray}⤇ \space Transphobe \space , \space Homophobe \space , \space Islamphobic \space , \space etc. \space 〷}$
+
+${\color{darkgray}⤇ \space Diehard \space Forsaken \space and \space Pressure \space fans \space  〷}$
+
+${\color{darkgray}⤇ \space If \space your \space whole \space personality \space is \space just \space sex \space jokes \space or \space can't \space take \space and \space make \space a \space joke \space \space without \space making \space it \space sexual \space 〷}$
+
+${\color{darkgray}⤇ \space If \space you \space harass \space people \space of \space the \space above \space 〷}$
+
+-----
 
