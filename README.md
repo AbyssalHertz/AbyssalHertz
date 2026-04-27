@@ -62,7 +62,7 @@ ${\color{lightgray}〷 " \space I \space WILL \space ONLY \space ASSIST \space Y
 
 
 <p align="center">
-<img width="1178" height="785" alt="Untitled38_20260427165147(1)" src="https://github.com/user-attachments/assets/5696f64d-36f4-4cf6-b57d-ddb9641e6b9c" />
+<img width="1178" height="785" alt="Untitled38_20260427165147(2)" src="https://github.com/user-attachments/assets/d5473198-7c8d-4d15-b22a-85fc46884ee0" />
 </p>
 
 <p align="center">
