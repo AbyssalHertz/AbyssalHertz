@@ -11,17 +11,17 @@ ${\color{lightgray}〷 " \space WELCOME \space BACK \space , \space DON'T \space
 </p>
 
 <p align="center">
-<img width="2048" height="163" alt="tumblr_9ab3d8f20591988f110bff5a9e5a0c74_ab868e64_2048" src="https://github.com/user-attachments/assets/dc75e72d-2de0-43a8-b369-5e3f652b52fc" />
+<img width="1280" height="102" alt="tumblr_f152418628137234bb63971dec757521_ed7a8a4e_1280" src="https://github.com/user-attachments/assets/19905fb9-0016-43bc-9ad6-172bdcfab1fe" />
 </p>
 
 </p>
 <h2 align="center">
-${\color{lightgray}〷 " \space DO \space READ \space BEFORE \space BEFORE \space YOU \space INTERACT \space : \space " 〷}$
+${\color{lightgray}〷 " \space DO \space READ \space BEFORE \space BEFORE \space YOU \space ATTEMPT \space AT \space COMMUNICATION \space " 〷}$
 </h2>
 
 </p>
 <h3 align="center">
-${\color{darkgray}〷 " \space DO \space NOT \space INTERACT \space : \space " 〷}$
+${\color{darkgray}〷 " \space DO \space NOT \space INTERACT \space " 〷}$
 </h3>
 
 ${\color{darkgray}⤇ \space Basic \space DNI \space 〷}$
@@ -40,3 +40,70 @@ ${\color{darkgray}⤇ \space If \space you \space harass \space people \space of
 
 -----
 
+</p>
+<h3 align="center">
+${\color{darkgray}〷 " \space BEFORE \space YOU \space INTERACT \space " 〷}$
+</h3>
+
+${\color{darkgray}⤇ \space I \space am \space 20 \space years \space old \space , \space block \space if \space needed \space 〷}$
+
+${\color{darkgray}⤇ \space I \space do \space not \space interact \space first \space unless \space I've \space know \space you \space , \space I'm \space somewhat \space anxious \space and \space shy \space to \space interact \space 〷}$
+
+${\color{darkgray}⤇ \space I \space offtab \space a \space lot \space , \space whispering \space to \space interact \space is \space appreciated \space a \space lot \space 〷}$
+
+${\color{darkgray}⤇ \space I'm \space a \space fictkins \space and \space yumeshipper \space , \space block \space if \space wanted \space 〷}$
+
+${\color{darkgray}⤇ \space I \space don't \space mind \space doubles \space , \space just \space don't \space be \space weird \space 〷}$
+
+
+<h1 align="center">
+${\color{lightgray}〷 " \space I \space WILL \space ONLY \space ASSIST \space YOU \space ONCE \space MORE \space " 〷}$
+</h1>
+
+
+<p align="center">
+<img width="1178" height="785" alt="Untitled38_20260427165147" src="https://github.com/user-attachments/assets/aff38859-f48b-46fa-a200-ac046381670c" />
+</p>
+
+<p align="center">
+<img width="2048" height="163" alt="tumblr_9ab3d8f20591988f110bff5a9e5a0c74_ab868e64_2048" src="https://github.com/user-attachments/assets/c9c83510-de9b-42a6-a6d5-5e7b3f452b3f" />
+</p>
+
+</p>
+<h2 align="center">
+${\color{lightgray}〷 " \space YOU'RE \space STILL \space HERE \space . \space . \space . \space \space LIKE \space HOW \space I'M \space HERE \space FOR \space YOU \space " 〷}$
+</h2>
+
+</p>
+<h3 align="center">
+${\color{darkgray}〷 " \space ABOUT \space ME \space " 〷}$
+</h3>
+
+${\color{darkgray}⤇ \space Please \space do \space call \space me \space Screen \space / \space Hal \space or \space any \space of \space my \space fictkins \space , \space nicknames \space for \space friends \space only \space 〷}$
+
+${\color{darkgray}⤇ \space I \space often \space seen \space in \space SS1 \space , \space either \space alone \space or \space with \space friends \space . \space Cuddling \space generally \space I'm \space okay \space with \space even \space if \space it's \space not \space in \space my \space name \space 〷}$
+
+${\color{darkgray}⤇ \space I'm \space a \space very \space quiet \space person \space at \space first \space , \space it'll \space take \space me \space awhile \space to \space get \space comfy \space with \space you \space 〷}$
+
+${\color{darkgray}⤇ \space Cover \space discomfort \space , \space please \space do \space not \space cover \space me \space for \space long \space period \space of \space time \space unless \space friends \space or \space cuddling \space 〷}$
+
+${\color{darkgray}⤇ \space Do \space not \space crowd \space me \space , \space I'm \space uncomfortable \space with \space crowd \space and \ being \space crowded \space 〷}$
+
+${\color{darkgray}⤇ \space My \space timezone \space is \space GMT+7 \space , \space but \space I'm \space chronically \space online \space anyway \space 〷}$
+
+${\color{darkgray}⤇ \space TransMasc \space , \space Pansexual \space , \space Interbinary \space , \space refrain \space from \space using \space feminine \space pronouns \space in \space any \space way \space unless \space close \space friends \space 〷}$
+
+${\color{darkgray}⤇ \space My \space fictkins \space are \space John \space Grace \space , \space Reprieve \space , \space Stephen \space Huberts \space , \space Katana \space , \space and \space Ghostwalker \space right \space now \space 〷}$
+
+${\color{darkgray}⤇ \space More \space information \space soon \space in \space Strawpage \space when \space I'm \space done \space with \space it \space ! \space 〷}$
+
+-----
+
+<h1 align="center">
+${\color{lightgray}〷 " \space I \space WILL \space NOT \space HELP \space YOU \space ANY \space FURTHER \space " 〷}$
+</h1>
+
+
+<p align="center">
+<img width="1600" height="120" alt="asdadasda" src="https://github.com/user-attachments/assets/3e0bcb13-7b2b-43fe-88e9-526ec35d6cc0" />
+</p>
