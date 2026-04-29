@@ -36,6 +36,8 @@ ${\color{darkgray}⤇ \space Diehard \space Forsaken \space and \space Pressure 
 
 ${\color{darkgray}⤇ \space If \space your \space whole \space personality \space is \space just \space sex \space jokes \space or \space can't \space take \space and \space make \space a \space joke \space \space without \space making \space it \space sexual \space 〷}$
 
+${\color{darkgray}⤇ \space If \space you \space weaponized \space or \space use \space your \space disabilities \space or \space medical \space condition \space to \space justify \space your \space bad \space behaviour \space  〷}$
+
 ${\color{darkgray}⤇ \space If \space you \space harass \space people \space of \space the \space above \space 〷}$
 
 -----
@@ -96,6 +98,8 @@ ${\color{darkgray}⤇ \space TransMasc \space , \space Pansexual \space , \space
 ${\color{darkgray}⤇ \space My \space fictkins \space are \space John \space Grace \space , \space Reprieve \space , \space Stephen \space Huberts \space , \space Katana \space , \space and \space Ghostwalker \space right \space now \space 〷}$
 
 ${\color{darkgray}⤇ \space More \space information \space soon \space in \space Strawpage \space when \space I'm \space done \space with \space it \space ! \space 〷}$
+
+${\color{darkgray}⤇ \space Note \space : \space I \space will \space block \space you \space without \space warning \space if \space you \space made \space me \space uncomfortable \space 〷}$
 
 -----
 
