@@ -53,7 +53,7 @@ ${\color{darkgray}⤇ \space I \space have \space trouble \space expressing \spa
 
 ${\color{darkgray}⤇ \space I \space might \space sound \space cold \space , \space uncaring \space or \space detached \space , \space I'm \space sorry \space if \space this \space bothers \space you \space 〷}$
 
-${\color{darkgray}⤇ \space I \space often \space matches \space other's \space energy \space and \space vibes \space , \space if \space you're \space enthusiastic \space then \space I \space will \space be \space too \space ! \space 〷}$
+${\color{darkgray}⤇ \space I \space often \space match \space other's \space energy \space and \space vibes \space , \space if \space you're \space enthusiastic \space then \space I \space will \space be \space too \space ! \space 〷}$
 
 
 ${\color{darkgray}⤇ \space I \space treat \space you \space the \space way \space you \space treat \space me \space and \space my \space friends \space , \space don't \space be \space an \space asshole \space and \space we're \space good \space 〷}$
