@@ -64,7 +64,7 @@ ${\color{darkgray}⤇ \space I \space offtab \space a \space lot \space , \space
 
 ${\color{darkgray}⤇ \space I'm \space a \space fictkins \space and \space yumeshipper \space , \space block \space if \space wanted \space 〷}$
 
-${\color{darkgray}⤇ \space I \space don't \space mind \space doubles \space , \space just \space don't \space be \space weird \space I'm \space still \space my \space own \space being \space with \space feelings \space 〷}$
+${\color{darkgray}⤇ \space I \space don't \space mind \space doubles \space , \space just \space don't \space be \space weird \space , \space I'm \space still \space my \space own \space being \space with \space feelings \space 〷}$
 
 
 <h1 align="center">
