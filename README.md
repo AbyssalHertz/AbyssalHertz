@@ -53,6 +53,9 @@ ${\color{darkgray}⤇ \space I \space have \space trouble \space expressing \spa
 
 ${\color{darkgray}⤇ \space I \space might \space sound \space cold \space , \space uncaring \space or \space detached \space , \space I'm \space sorry \space if \space this \space bothers \space you \space 〷}$
 
+${\color{darkgray}⤇ \space I \space often \space matches \space other's \space energy \space and \space vibes \space , \space if \space you're \space enthusiastic \space then \space I \space will \space be \space too \space ! \space 〷}$
+
+
 ${\color{darkgray}⤇ \space I \space treat \space you \space the \space way \space you \space treat \space me \space and \space my \space friends \space , \space don't \space be \space an \space asshole \space and \space we're \space good \space 〷}$
 
 ${\color{darkgray}⤇ \space I \space do \space not \space interact \space first \space unless \space I've \space know \space you \space , \space I'm \space somewhat \space anxious \space and \space shy \space to \space interact \space 〷}$
@@ -61,7 +64,7 @@ ${\color{darkgray}⤇ \space I \space offtab \space a \space lot \space , \space
 
 ${\color{darkgray}⤇ \space I'm \space a \space fictkins \space and \space yumeshipper \space , \space block \space if \space wanted \space 〷}$
 
-${\color{darkgray}⤇ \space I \space don't \space mind \space doubles \space , \space just \space don't \space be \space weird \space 〷}$
+${\color{darkgray}⤇ \space I \space don't \space mind \space doubles \space , \space just \space don't \space be \space weird \space I'm \space still \space my \space own \space being \space with \space feelings \space 〷}$
 
 
 <h1 align="center">
