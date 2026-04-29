@@ -94,6 +94,9 @@ ${\color{darkgray}⤇ \space Please \space do \space call \space me \space Scree
 
 ${\color{darkgray}⤇ \space I \space often \space seen \space in \space SS1 \space , \space either \space alone \space or \space with \space friends \space . \space Cuddling \space generally \space I'm \space okay \space with \space even \space if \space it's \space not \space in \space my \space name \space 〷}$
 
+${\color{darkgray}⤇ \space Same \space fandoms \space int \space ! \space Especially \space if \space it's \space my \space hyperfixations \space I'm \space very \space friendly \space trust \space  〷}$
+
+
 ${\color{darkgray}⤇ \space I'm \space a \space very \space quiet \space person \space at \space first \space , \space it'll \space take \space me \space awhile \space to \space get \space comfy \space with \space you \space 〷}$
 
 ${\color{darkgray}⤇ \space Cover \space discomfort \space , \space please \space do \space not \space cover \space me \space for \space long \space period \space of \space time \space unless \space friends \space or \space cuddling \space 〷}$
@@ -109,6 +112,8 @@ ${\color{darkgray}⤇ \space My \space fictkins \space are \space John \space Gr
 ${\color{darkgray}⤇ \space More \space information \space soon \space in \space Strawpage \space when \space I'm \space done \space with \space it \space ! \space 〷}$
 
 ${\color{darkgray}⤇ \space Note \space : \space I \space will \space block \space you \space without \space warning \space if \space you \space made \space me \space uncomfortable \space 〷}$
+
+${\color{darkgray}⤇ \space My \space friends \space is \space so \space coolio \space I \space love \space all \space of \space you \space <3 \space /p \space 〷}$
 
 -----
 
