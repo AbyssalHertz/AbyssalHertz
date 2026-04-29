@@ -111,9 +111,9 @@ ${\color{darkgray}⤇ \space My \space fictkins \space are \space John \space Gr
 
 ${\color{darkgray}⤇ \space More \space information \space soon \space in \space Strawpage \space when \space I'm \space done \space with \space it \space ! \space 〷}$
 
-${\color{darkgray}⤇ \space Note \space : \space I \space will \space block \space you \space without \space warning \space if \space you \space made \space me \space uncomfortable \space 〷}$
-
 ${\color{darkgray}⤇ \space My \space friends \space is \space so \space coolio \space I \space love \space all \space of \space you \space <3 \space /p \space 〷}$
+
+${\color{darkgray}⤇ \space This \space is \space long \space ass \space GitHub \space sobs \space 〷}$
 
 -----
 
