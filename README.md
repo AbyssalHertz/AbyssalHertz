@@ -101,7 +101,7 @@ ${\color{darkgray}⤇ \space Do \space not \space crowd \space me \space , \spac
 
 ${\color{darkgray}⤇ \space My \space timezone \space is \space GMT+7 \space , \space but \space I'm \space chronically \space online \space anyway \space 〷}$
 
-${\color{darkgray}⤇ \space TransMasc \space , \space Pansexual \space , \space Interbinary \space , \space refrain \space from \space using \space feminine \space pronouns \space in \space any \space way \space unless \space close \space friends \space 〷}$
+${\color{darkgray}⤇ \space TransMasc \space , \space Pansexual \space , \space Interbinary \space , \space don't \space use \space feminine \space pronouns \space on \space me \space in \space any \space way \space unless \space close \space friends \space 〷}$
 
 
 ${\color{darkgray}⤇ \space My \space friends \space is \space so \space coolio \space I \space love \space all \space of \space you \space <3 \space /p \space 〷}$
