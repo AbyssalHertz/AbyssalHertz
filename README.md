@@ -24,7 +24,7 @@ ${\color{lightgray}〷 " \space DO \space READ \space BEFORE \space BEFORE \spac
 ${\color{darkgray}〷 " \space DO \space NOT \space INTERACT \space " 〷}$
 </h3>
 
-${\color{darkgray}⤇ \space Basic \space DNI \space 〷}$
+${\color{darkgray}⤇ \space I \space follow \space Basic \space DNI \space 〷}$
 
 ${\color{darkgray}⤇ \space Below \space 15 \space >> \space you \space can \space still \space interact \space , \space I \space just \ won't \space form \space a \space close \space bond \space with \space you \space << \space 〷}$
 
@@ -52,8 +52,6 @@ ${\color{darkgray}⤇ \space I \space am \space 20 \space years \space old \spac
 ${\color{darkgray}⤇ \space I \space have \space trouble \space expressing \space my \space emotion \space or \space how \space I \space feel \space , \space please \space be \space patient \space with \space me \space 〷}$
 
 ${\color{darkgray}⤇ \space I \space often \space match \space other's \space energy \space and \space vibes \space , \space if \space you're \space enthusiastic \space then \space I \space will \space be \space too \space ! \space 〷}$
-
-${\color{darkgray}⤇ \space I \space treat \space you \space the \space way \space you \space treat \space me \space and \space my \space friends \space , \space don't \space be \space an \space asshole \space and \space we're \space good \space 〷}$
 
 ${\color{darkgray}⤇ \space I \space do \space not \space interact \space first \space unless \space I've \space know \space you \space , \space I'm \space somewhat \space anxious \space and \space shy \space to \space interact \space 〷}$
 
@@ -91,6 +89,8 @@ ${\color{darkgray}⤇ \space Please \space do \space call \space me \space Scree
 
 ${\color{darkgray}⤇ \space I \space often \space seen \space in \space SS1 \space , \space either \space alone \space or \space with \space friends \space . \space Cuddling \space generally \space I'm \space okay \space with \space even \space if \space it's \space not \space in \space my \space name \space 〷}$
 
+${\color{darkgray}⤇ \space I \space do \space have \space cudcomf \space , \space I \space just \space got \space nervous \space coming \space up \space to \space people \space and \space sit \space with \space them \space </3 \space  〷}$
+
 ${\color{darkgray}⤇ \space Same \space fandoms \space int \space ! \space Especially \space if \space it's \space my \space hyperfixations \space I'm \space very \space friendly \space trust \space  〷}$
 
 ${\color{darkgray}⤇ \space I'm \space a \space very \space quiet \space person \space at \space first \space , \space it'll \space take \space me \space awhile \space to \space get \space comfy \space with \space you \space 〷}$
@@ -103,9 +103,6 @@ ${\color{darkgray}⤇ \space My \space timezone \space is \space GMT+7 \space , 
 
 ${\color{darkgray}⤇ \space TransMasc \space , \space Pansexual \space , \space Interbinary \space , \space refrain \space from \space using \space feminine \space pronouns \space in \space any \space way \space unless \space close \space friends \space 〷}$
 
-${\color{darkgray}⤇ \space My \space fictkins \space are \space John \space Grace \space , \space Reprieve \space , \space Stephen \space Huberts \space , \space Katana \space , \space and \space Ghostwalker \space right \space now \space 〷}$
-
-${\color{darkgray}⤇ \space More \space information \space soon \space in \space Strawpage \space when \space I'm \space done \space with \space it \space ! \space 〷}$
 
 ${\color{darkgray}⤇ \space My \space friends \space is \space so \space coolio \space I \space love \space all \space of \space you \space <3 \space /p \space 〷}$
 
