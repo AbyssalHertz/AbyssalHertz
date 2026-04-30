@@ -51,10 +51,7 @@ ${\color{darkgray}⤇ \space I \space am \space 20 \space years \space old \spac
 
 ${\color{darkgray}⤇ \space I \space have \space trouble \space expressing \space my \space emotion \space or \space how \space I \space feel \space , \space please \space be \space patient \space with \space me \space 〷}$
 
-${\color{darkgray}⤇ \space I \space might \space sound \space cold \space , \space uncaring \space or \space detached \space , \space I'm \space sorry \space if \space this \space bothers \space you \space 〷}$
-
 ${\color{darkgray}⤇ \space I \space often \space match \space other's \space energy \space and \space vibes \space , \space if \space you're \space enthusiastic \space then \space I \space will \space be \space too \space ! \space 〷}$
-
 
 ${\color{darkgray}⤇ \space I \space treat \space you \space the \space way \space you \space treat \space me \space and \space my \space friends \space , \space don't \space be \space an \space asshole \space and \space we're \space good \space 〷}$
 
@@ -95,7 +92,6 @@ ${\color{darkgray}⤇ \space Please \space do \space call \space me \space Scree
 ${\color{darkgray}⤇ \space I \space often \space seen \space in \space SS1 \space , \space either \space alone \space or \space with \space friends \space . \space Cuddling \space generally \space I'm \space okay \space with \space even \space if \space it's \space not \space in \space my \space name \space 〷}$
 
 ${\color{darkgray}⤇ \space Same \space fandoms \space int \space ! \space Especially \space if \space it's \space my \space hyperfixations \space I'm \space very \space friendly \space trust \space  〷}$
-
 
 ${\color{darkgray}⤇ \space I'm \space a \space very \space quiet \space person \space at \space first \space , \space it'll \space take \space me \space awhile \space to \space get \space comfy \space with \space you \space 〷}$
 
