@@ -36,9 +36,9 @@ ${\color{darkgray}⤇ \space Diehard \space Forsaken \space and \space Pressure 
 
 ${\color{darkgray}⤇ \space If \space your \space whole \space personality \space is \space just \space sex \space jokes \space or \space can't \space take \space and \space make \space a \space joke \space \space without \space making \space it \space sexual \space 〷}$
 
-${\color{darkgray}⤇ \space If \space you \space weaponized \space or \space use \space your \space disabilities \space or \space medical \space condition \space to \space justify \space your \space bad \space behaviour \space  〷}$
+${\color{darkgray}⤇ \space If \space you \space harass \space people \space of \space the \space above \space << Why \space even \space bro \space >> \space 〷}$
 
-${\color{darkgray}⤇ \space If \space you \space harass \space people \space of \space the \space above \space 〷}$
+${\color{darkgray}⤇ \space I \space block \space freely \space otherwise \space << \space people \space that \space makes \space me \space uncomfy \space , \space sexual \space in \space public \space , \space etc. \space >> \space  〷}$
 
 -----
 
